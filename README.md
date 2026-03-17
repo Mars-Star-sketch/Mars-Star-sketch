@@ -1,5 +1,5 @@
 
-### **⋆. 𐙚˚࿔ About This Pookie 𝜗𝜚˚⋆**
+### **⋆. 𐙚˚࿔ Hi, I'm Vi ♡ 𝜗𝜚˚⋆**
 
 ```diff
 @@The future is coming, and i love it@@
